@@ -7,25 +7,6 @@
 
 :::
 
-#### 日本環球影城自由行規劃
-https://docs.google.com/spreadsheets/d/1Ev91XyoPuatA-S9McHo_Act2tdDrtacrDuVr3TKsHWo/edit?usp=sharing
-
-景點地標
-https://maps.app.goo.gl/boKQcMKUu6mgjmQj8
-
-住宿Hotel Name
-OKINI - DOYANEN HOTELS OKINI - DOYANEN HOTELS
-Adress
-3-4-15 Haginochaya, Nishinari-ku,Osaka,Osaka,557-0004,JP
-大阪大阪3-4-15 Haginochaya, Nishinari-ku
-Contact Number81-70534-96321
-FAX 81-66635-0093
-
-https://youtu.be/IlgmZlmcphU
-
-大阪環球影城1.5日票攻略：   
-https://www.youtube.com/watch?v=QcJ3ze6reVs
-  
 #### 常用連結
 https://poki.com/zh/g/kiwi-clicker
 Google拼圖:https://g.co/arts/Wqau6cVK3KrjjsRU9
